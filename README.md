@@ -1,1 +1,1 @@
- !![Untitled149_0000-05-28_20250121200956](https://github.com/user-attachments/assets/86266e4d-d5a3-4f90-a792-687a199780c0)
+(https://cdn.discordapp.com/attachments/1308887816855490633/1378759648638926909/IMG_1607.jpeg?ex=683dc57c&is=683c73fc&hm=52a8fd0e18405c812f834646e9b861571c3a7471d7a3ea1bd373487a4bdff9d3&)
