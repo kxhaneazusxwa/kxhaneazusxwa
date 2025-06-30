@@ -1,11 +1,4 @@
-![IMG_1610](https://github.com/user-attachments/assets/be6817c1-9658-4891-a67a-683795ab3850)
 
-
-
-
-
-
-
-
-![IMG_1611](https://github.com/user-attachments/assets/151b84e6-5c96-4d90-8115-0230c158acda)
+![IMG_1834](https://github.com/user-attachments/assets/6559cb4f-36f7-440d-8b76-4c774219ce7b)
+![IMG_1833](https://github.com/user-attachments/assets/2302f2e8-9a13-4bb3-a25b-ed01545ebfc1)
 
