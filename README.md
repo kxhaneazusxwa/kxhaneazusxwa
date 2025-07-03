@@ -1,12 +1,14 @@
 
-![IMG_1878](https://github.com/user-attachments/assets/9fdc6989-cf04-4cd2-a858-d847b3529bd1)
+![IMG_1885](https://github.com/user-attachments/assets/0b0c552a-dafd-438b-9442-63cabc47c6cb)
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r2y3pavri7wn4c2nekhbpiangy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffd0e4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
-![IMG_1877](https://github.com/user-attachments/assets/89cc0aeb-68d4-4c9b-9c1e-708cffa6d17d)
+![IMG_1882](https://github.com/user-attachments/assets/6f863133-debf-4506-a8c8-1a42d91c196e)
+
 
  # me nd her💝 /p
 ![IMG_1867](https://github.com/user-attachments/assets/74b32e64-4741-42ea-992b-6db4dea6a6fa)
