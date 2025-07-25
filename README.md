@@ -1,8 +1,5 @@
+<img width="2138" height="1224" alt="IMG_1999" src="https://github.com/user-attachments/assets/67684097-1d38-4b06-a307-1107c42e837a" />
 
-
-
-
-<img width="2138" height="1224" alt="IMG_1999" src="https://github.com/user-attachments/assets/577f23a5-aa73-4e15-a719-814be57fdba3" />
 
 
 
