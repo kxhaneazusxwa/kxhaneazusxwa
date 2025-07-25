@@ -1,4 +1,6 @@
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=11&pause=1000&color=8357C3&background=000000&width=435&lines=You+gave+me+all+sorts+of+accessories+%26+trinkets+to+remember+you+by;You+trusted+me+in+the+same+way+that+I+did+with+you%2C+so...;It's+not+that+I+can't+remember%2C+it's+that+I+don't+want+to+remember.)](https://git.io/typing-svg)
+
 ![IMG_1998](https://github.com/user-attachments/assets/836649be-8298-459f-9d78-34f22ade6b2d)
 
 
