@@ -1,10 +1,12 @@
-<img width="2138" height="1224" alt="IMG_1999" src="https://github.com/user-attachments/assets/67684097-1d38-4b06-a307-1107c42e837a" />
+![IMG_2268](https://github.com/user-attachments/assets/8a604604-3904-4aca-a25d-554261716188)
+
+![IMG_2267](https://github.com/user-attachments/assets/667a6814-4dd5-4396-9030-1a351d4b2045)
 
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=11&pause=1000&color=8357C3&background=000000&width=435&lines=You+gave+me+all+sorts+of+accessories+%26+trinkets+to+remember+you+by;You+trusted+me+in+the+same+way+that+I+did+with+you%2C+so...;It's+not+that+I+can't+remember%2C+it's+that+I+don't+want+to+remember.)](https://git.io/typing-svg)
-![IMG_1998](https://github.com/user-attachments/assets/836649be-8298-459f-9d78-34f22ade6b2d)
+![IMG_2270](https://github.com/user-attachments/assets/7dc912dd-b0d5-4af2-a919-cfa1f80b8d9a)
+
 
 
 
@@ -22,13 +24,26 @@
 
 
 
+ 
 
- # me nd her💝 /p
+#ichance yuri when???
+guys look fem itrapped
+![IMG_2264](https://github.com/user-attachments/assets/395a0cf7-0a3b-429f-a850-1712ed8db457)
 
-![IMG_2001](https://github.com/user-attachments/assets/e9a801a2-b55c-4603-8b83-6e533da75e78)
+hmmmmmmmmmmmmmmWhat what hi me maya i host mafia , fts and foraaken rps like daily idk hahhahahahananwjjana![IMG_2263](https://github.com/user-attachments/assets/80bc5235-5fcf-4951-b71c-36b6d67a279b)
+Me and and and aereis😷😷
 
+me like...ichance i like ichance moatly yuri tho cuz YURI ICHANCE DROOSSZZ
 
+guys whoch one is reaLll😪😪itrapped
+![IMG_2265](https://github.com/user-attachments/assets/3ef92286-3027-4861-8f9d-8860ca01b9dd)
+idk acatullay
 
+ok if my friends are seeing this ahem , hi solar , hi vivid , hi maple , hi ria , hi pwix , hi aereis , hi uhm uhm uhm uhm uhm uhm hi uh I HAVE SP MANY FRIENDS WTF , hi toast , hi melody, hi gummy, hi saki , hi ruby (my online mom) and HI TO ALOY OD MY FRIENDS
+
+![IMG_2266](https://github.com/user-attachments/assets/cfe69e84-c28d-4261-9919-0584224bfb8c)
+
+sayonara...pls sign my atabook btw
 
 
 
