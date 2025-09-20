@@ -44,6 +44,7 @@ ok if my friends are seeing this ahem , hi solar , hi vivid , hi maple , hi ria 
 ![IMG_2266](https://github.com/user-attachments/assets/cfe69e84-c28d-4261-9919-0584224bfb8c)
 
 sayonara...pls sign my atabook btw
+![IMG_2284](https://github.com/user-attachments/assets/dfd7b958-ad20-44cb-a042-dfee7186f06a)
 
 
 
