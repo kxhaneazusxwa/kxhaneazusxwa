@@ -32,7 +32,7 @@ guys look fem itrapped
 
 https://mayashostings.straw.page hmmmmmmmmmmmmmmWhat what hi me maya i host mafia , fts and foraaken rps like daily idk hahhahahahananwjjana!
 
-[IMG_2263](https://github.com/user-attachments/assets/80bc5235-5fcf-4951-b71c-36b6d67a279b)
+![IMG_2263](https://github.com/user-attachments/assets/f55fb2d6-1dfe-4d26-b400-114db0432a2f)
 
 
 Me and and and aereis😷😷
@@ -49,6 +49,10 @@ ok if my friends are seeing this ahem , hi solar  , hi maple , hi ria , hi pwix 
 
 sayonara...pls sign my atabook btw
 ![IMG_2284](https://github.com/user-attachments/assets/dfd7b958-ad20-44cb-a042-dfee7186f06a)
+
+
+Me btw
+![IMG_2320](https://github.com/user-attachments/assets/5aab4d32-5dea-4f91-b065-92068db2915e)
 
 
 
