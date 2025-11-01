@@ -1,11 +1,12 @@
-![IMG_2268](https://github.com/user-attachments/assets/8a604604-3904-4aca-a25d-554261716188)
+![IMG_2887](https://github.com/user-attachments/assets/ac479a37-47f4-4389-8117-77412d69a8f3)
 
-![IMG_2267](https://github.com/user-attachments/assets/667a6814-4dd5-4396-9030-1a351d4b2045)
-
-
+![IMG_2878](https://github.com/user-attachments/assets/205805f6-2531-49d4-9e58-ac7500383d32)
 
 
-![IMG_2270](https://github.com/user-attachments/assets/7dc912dd-b0d5-4af2-a919-cfa1f80b8d9a)
+
+
+
+![IMG_2889](https://github.com/user-attachments/assets/4dcf7b1e-1046-40b1-8c1f-6c623f9ca7c1)
 
 
 
@@ -20,39 +21,41 @@
 
 
 
-![IMG_1997](https://github.com/user-attachments/assets/71eb3d13-294e-41a4-85b6-7521c933b88e)
+![IMG_2888](https://github.com/user-attachments/assets/861ffd56-4283-4f1e-9894-ae67cfe0f69c)
 
 
 
  
 
-#ichance yuri when???
-guys look fem itrapped
-![IMG_2264](https://github.com/user-attachments/assets/395a0cf7-0a3b-429f-a850-1712ed8db457)
+# flashes you all with mizu5 angst
+![IMG_2885](https://github.com/user-attachments/assets/0f972253-7520-4b6e-9750-89dbaff6fd14)
 
-https://mayashostings.straw.page hmmmmmmmmmmmmmmWhat what hi me maya i host mafia , fts and foraaken rps like daily idk hahhahahahananwjjana!
+https://mayashostings.straw.page hmmmmmmmmmmmmmmWhat what hi me milo/maya i host mafia , fts and foraaken rps like daily idk hahhahahahananwjjana!
 
-![IMG_2263](https://github.com/user-attachments/assets/f55fb2d6-1dfe-4d26-b400-114db0432a2f)
+![IMG_2890](https://github.com/user-attachments/assets/018d8a48-011d-46d2-b7b5-86047ac523a9)
 
 
-Me and and and aereis😷😷
+Me and the STUPID vee😆😆
 
-me like...ichance i like ichance moatly yuri tho cuz YURI ICHANCE DROOSSZZ
+ilike......idk mizuena toxic doomed yuri (stares at the hermit Mizuena set...)
 
-guys whoch one is reaLll😪😪itrapped
-![IMG_2265](https://github.com/user-attachments/assets/3ef92286-3027-4861-8f9d-8860ca01b9dd)
-idk acatullay
+i actually love this SO FUCKING MUCH
+![IMG_2891](https://github.com/user-attachments/assets/c7c30266-d7b9-4e2b-bb9b-348f1f5dfaa7)
 
-ok if my friends are seeing this ahem , hi solar  , hi maple , hi ria , hi pwix , hi aereis , hi uhm uhm uhm uhm uhm uhm hi uh I HAVE SP MANY FRIENDS WTF , hi toast , hi melody, hi gummy, hi saki , hi ruby (my online mom) and HI TO ALOY OD MY FRIENDS, HI RIVI UH HI ROQUE , HI VORTEX , HI UH UH *explodes*
+ok if my friends are seeing this ahem , hi solar  , hi maple , hi ria , hi pwix , hi vivid , hi uhm uhm uhm uhm uhm uhm hi uh I HAVE SP MANY FRIENDS WTF , hi toast , hi melody, hi gummy, hi saki , hi ruby (my online mom) and HI TO ALOY OD MY FRIENDS, HI RIVI UH HI ROQUE , HI VORTEX , HI VEE , HI UH UH UH *explodes*
 
-![IMG_2266](https://github.com/user-attachments/assets/cfe69e84-c28d-4261-9919-0584224bfb8c)
+![IMG_2883](https://github.com/user-attachments/assets/38cd4833-d003-4eb4-9e83-6b61477b7f2e)
 
 sayonara...pls sign my atabook btw
 ![IMG_2284](https://github.com/user-attachments/assets/dfd7b958-ad20-44cb-a042-dfee7186f06a)
 
 
 Me btw
-![IMG_2320](https://github.com/user-attachments/assets/5aab4d32-5dea-4f91-b065-92068db2915e)
+![IMG_2892](https://github.com/user-attachments/assets/d055e6be-b746-4c92-a9cb-26f8194f13a6)
+
+# WHAT DO YOU FUCKING MEAN IM AN SUBMISSIVE OMEGA???????
+![IMG_2893](https://github.com/user-attachments/assets/78417d48-9734-4a4f-a4d4-78ae502955e9)
+
 
 
 
