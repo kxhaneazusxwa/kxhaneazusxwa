@@ -23,5 +23,7 @@
 
 
 
-i really like mizuena
-![IMG_4127](https://github.com/user-attachments/assets/3a1882a7-1c60-46a0-a201-2ba084f697ff)
+have a silly minoharu fanart!
+![IMG_4398](https://github.com/user-attachments/assets/a927366e-a850-44ed-a3e2-59b0728a7892)
+btw i fictkin emu, kohane , ena and minori being the most! i also yume an , mizuki and haruka being the most! im okay with doubles but iwc!
+
