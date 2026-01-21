@@ -26,5 +26,3 @@
 have a silly minoharu fanart!
 ![IMG_4398](https://github.com/user-attachments/assets/a927366e-a850-44ed-a3e2-59b0728a7892)
 btw i fictkin emu, kohane , ena and minori being the most! i also yume an , mizuki and haruka being the most! im okay with doubles but iwc!
-
-dont trust that kiyo callout thing its all a lie LMFAO
